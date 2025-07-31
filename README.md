@@ -1,5 +1,5 @@
 # 0RGAN1SM
 
-Trigonometric lifeforms
+Mezmerizing trigonometric lifeforms
 
 [0RGAN1SM.timagineer.com](https://0RGAN1SM.timagineer.com)
