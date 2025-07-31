@@ -1,5 +1,5 @@
-# tmpl
+# 0RGAN1SM
 
 description
 
-[tmpl.timagineer.com](https://tmpl.timagineer.com)
+[0RGAN1SM.timagineer.com](https://0RGAN1SM.timagineer.com)
